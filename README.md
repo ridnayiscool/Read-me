@@ -20,7 +20,7 @@
 , ⊹ ﹒
 ┈ , If you want to be friends with me, you need to ask me first :D , ⊹ ﹒
 , ⊹ ﹒
-┈ , I always afk/busy , ⊹ ﹒
+┈ , I'm always afk/busy , ⊹ ﹒
 ,,,,,,,,,,,,,,,,,,,,,,,,,,,,,,
 
 , + Roblox ◇ •
